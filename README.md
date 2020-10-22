@@ -1,2 +1,2 @@
 # Usman-Zakaria-16520003
-Usman Zakaria / 16520003
+  Pengalaman menggunakan salah satu produk dari google yaitu google earth. Google earth berguna untuk menunjukkan letak suatu lokasi yang ada dipermukaan bumi. Saya sering menggunakan Google Earth ketika berpergian jauh, terutama saat berkunjung ketempat yang belum pernah saya kunjungi sebelumnya. Ketika saya tidak mengetahui lokasi tenang suatu tempat saya menggunakannya. Google earth sangat membantu saya. Dahulu, ketika saya hendak pergi ke pantai untuk liburan, saya tersesat dijalan bersama para rombongan karena adanya percabangan jalan yang tidak kami ketahui, disinilah peran google earth manunjukkan jalan yang paling tepat untuk saya bersama rombongan menuju kepantai untuk liburan.
